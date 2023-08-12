@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am working on WordPress
+I am a WordPress lover.
 
 
 ## 🌐 Socials:
